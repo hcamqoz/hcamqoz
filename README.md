@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @hcamqoz
+- 👀 I’m interested in anything usefull and interesting
+- 🌱 I’m currently learning python
+- 📫 How to reach me hasooo.hcz@mail.com
